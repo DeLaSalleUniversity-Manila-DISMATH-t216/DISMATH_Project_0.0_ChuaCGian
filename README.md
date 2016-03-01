@@ -2,3 +2,4 @@
 
 ![scrnsht 1](http://puu.sh/nqPAA/5ba49d2458.png)
 ![scrnsht 2](http://puu.sh/nqPCJ/039e1a6da5.png)
+![scrnsht 3](http://puu.sh/nqPEW/493e3adb7f.png)
